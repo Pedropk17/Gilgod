@@ -1,2 +1,1 @@
-# Gilgod
-Gilgod V2
+quizer dar uma embelezada ta ai 
